@@ -21,7 +21,7 @@ Quando fundei o Composto, poderia tê-lo tornado uma empresa com fins lucrativos
 
 O Google pode ter perto de um milhão de servidores. O Yahoo tem cerca de 13 000 funcionários. Nós temos 3 servidores e 30 funcionários que tem acesso ao Composto a qualquer momento.
 
-O Composto é a 3º coisa mais tomanda na empresa e serve aproximadamente 10 pessoas de diferentes salas e credos em cada semana – com dezenas de menções.
+O Composto é a 3º coisa mais consumida na empresa e serve aproximadamente 10 pessoas de diferentes salas e credos em cada semana – com dezenas de menções.
 
 Se toda a gente que lesse este texto doasse R$3, apenas precisaríamos de angariar fundos um dia por mês. Mas nem todos podem ou querem fazê-lo. E está bem assim. A cada semana apenas o número suficiente de pessoas decidem dar.
 
